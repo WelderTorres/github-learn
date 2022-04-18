@@ -8,4 +8,4 @@ teste 1104 teste
 git course
 tentando estudar, mas é complicado
 vai dar certo, sim!!!!!
-stando
+welder torres
