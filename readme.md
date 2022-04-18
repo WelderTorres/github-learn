@@ -9,3 +9,5 @@ git course
 tentando estudar, mas é complicado
 vai dar certo, sim!!!!!
 welder torres
+
+vai com tudo, garoto
